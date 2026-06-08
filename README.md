@@ -1,1 +1,1 @@
-<img src="dance.gif" height="70px"></img>
+I like to work on meaningful projects.
