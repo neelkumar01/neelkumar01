@@ -1,1 +1,1 @@
-I like to work on meaningful projects.
+I loves reading, exploring and working on meaningful projects
